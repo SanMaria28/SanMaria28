@@ -15,7 +15,7 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 ## Connect with Me
-- LinkedIn: [San Maria Joby](www.linkedin.com/in/san-maria-joby)
+- LinkedIn: [San Maria Joby](https://www.linkedin.com/in/san-maria-joby/)
 
 ---
 
